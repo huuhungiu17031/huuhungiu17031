@@ -7,8 +7,6 @@
   <img width="400px" src="https://thumbs.gfycat.com/EvilNextDevilfish-small.gif" />
 </div>
 <br>
-<br>
-
 
 ### ✨ Something About Me
 
